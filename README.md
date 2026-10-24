@@ -1,0 +1,2 @@
+# Frequ-ncias-
+Campos frequências 
